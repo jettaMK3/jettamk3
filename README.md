@@ -10,8 +10,8 @@
 <div align="center">
 <details>
  <summary></summary>
- <img width="100" height="170" alt="image" src="https://github.com/user-attachments/assets/b147d73a-4346-4074-b5c2-8f7f811229cf" /><div></div>
-jess corner
+could be awkward to talk to at first since i like to joke around a lot<div></div>
+i also REALLY like fast and furious and car related things
 </details>
 </div>
 <p/>
