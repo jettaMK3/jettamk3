@@ -10,8 +10,7 @@
 <div align="center">
 <details>
  <summary></summary>
-could be awkward to talk to at first since i like to joke around a lot<div></div>
-i also REALLY like fast and furious and car related things
+im intense, if thats a problem, sorry i like to talk muchhies
 </details>
 </div>
 <p/>
