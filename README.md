@@ -10,7 +10,7 @@
 <div align="center">
 <details>
  <summary></summary>
-im intense, if thats a problem, sorry i like to talk muchhies
+i like to talk about cars
 </details>
 </div>
 <p/>
